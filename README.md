@@ -1,1 +1,1 @@
-## Did you hear about the guy whose whole left side was cut off? He's all right now.
+## Whenever the cashier at the grocery store asks my dad if he would like the milk in a bag he replies, ‘No, just leave it in the carton!’
