@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Want to hear a joke about construction? Nah, I'm still working on it.
