@@ -1,1 +1,1 @@
-## Why didn’t the orange win the race? It ran out of juice.
+## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
