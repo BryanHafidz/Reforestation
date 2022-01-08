@@ -1,1 +1,1 @@
-## Why did the burglar hang his mugshot on the wall? To prove that he was framed!
+## The Swiss must've been pretty confident in their chances of victory if they included a corkscrew in their army knife.
