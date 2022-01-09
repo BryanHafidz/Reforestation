@@ -1,1 +1,1 @@
-## I made a belt out of watches once... It was a waist of time.
+## When my wife told me to stop impersonating a flamingo, I had to put my foot down.
