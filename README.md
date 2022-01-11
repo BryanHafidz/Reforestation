@@ -1,1 +1,1 @@
-## What did Michael Jackson name his denim store?    Billy Jeans!
+## Why does Superman get invited to dinners? Because he is a Supperhero.
