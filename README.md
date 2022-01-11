@@ -1,1 +1,1 @@
-## Why does Superman get invited to dinners? Because he is a Supperhero.
+## What is worse then finding a worm in your Apple? Finding half a worm in your Apple.
