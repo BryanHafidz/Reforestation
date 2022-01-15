@@ -1,1 +1,1 @@
-## How does Darth Vader like his toast? On the dark side.
+## I had a rough day, and then somebody went and ripped the front and back pages from my dictionary. It just goes from bad to worse.
