@@ -1,1 +1,1 @@
-## Did you hear about the Mexican train killer? He had loco motives
+## How does Darth Vader like his toast? On the dark side.
