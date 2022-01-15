@@ -1,1 +1,1 @@
-## Why didn't the number 4 get into the nightclub? Because he is 2 square.
+## To the person who stole my anti-depressant pills: I hope you're happy now.
