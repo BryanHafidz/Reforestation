@@ -1,1 +1,1 @@
-## I thought about going on an all-almond diet. But that's just nuts.
+## I met this girl on a dating site and, I don't know, we just clicked.
