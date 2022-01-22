@@ -1,1 +1,1 @@
-## Why did the house go to the doctor? It was having window panes.
+## Why couldn't the kid see the pirate movie? Because it was rated arrr!
