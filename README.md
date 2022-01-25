@@ -1,1 +1,1 @@
-## Why do crabs never give to charity? Because they’re shellfish.
+## Whoever invented the knock-knock joke should get a no bell prize.
