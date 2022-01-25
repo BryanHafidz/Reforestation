@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## Why did the cowboy have a weiner dog? Somebody told him to get a long little doggy.
