@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## Why do pirates not know the alphabet? They always get stuck at "C".
