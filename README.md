@@ -1,1 +1,1 @@
-## Why did the kid throw the clock out the window? He wanted to see time fly!
+## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
