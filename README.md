@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Did you hear about the scientist who was lab partners with a pot of boiling water? He had a very esteemed colleague.
