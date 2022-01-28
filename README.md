@@ -1,1 +1,1 @@
-## I used to work in a shoe recycling shop. It was sole destroying.
+## I wouldn't buy anything with velcro. It's a total rip-off.
