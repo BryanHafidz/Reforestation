@@ -1,1 +1,3 @@
-## I wouldn't buy anything with velcro. It's a total rip-off.
+## I used to work at a stationery store.  But, I didn't feel like I was going anywhere.
+## 
+## So, I got a job at a travel agency.  Now, I know I'll be going places.
