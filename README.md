@@ -1,1 +1,1 @@
-## They're making a movie about clocks. It's about time
+## A police officer caught two kids playing with a firework and a car battery. He charged one and let the other one off.
