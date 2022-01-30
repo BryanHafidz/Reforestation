@@ -1,1 +1,1 @@
-## Why did the tree go to the dentist? It needed a root canal.
+## I applied to be a doorman but didn't get the job due to lack of experience. That surprised me, I thought it was an entry level position.
