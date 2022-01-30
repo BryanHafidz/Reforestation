@@ -1,1 +1,1 @@
-## What did one snowman say to the other snow man? Do you smell carrot?
+## Why did the tree go to the dentist? It needed a root canal.
