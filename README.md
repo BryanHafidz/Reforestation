@@ -1,1 +1,1 @@
-## What is a tornado's favorite game to play? Twister!
+## Why are graveyards so noisy? Because of all the coffin.
