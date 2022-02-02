@@ -1,1 +1,1 @@
-## Why did the chicken get a penalty? For fowl play.
+## What is a tornado's favorite game to play? Twister!
