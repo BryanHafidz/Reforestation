@@ -1,1 +1,1 @@
-## Why are graveyards so noisy? Because of all the coffin.
+## What did one nut say as he chased another nut?  I'm a cashew!
