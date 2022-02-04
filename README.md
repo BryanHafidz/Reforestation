@@ -1,1 +1,1 @@
-## Why does a chicken coop only have two doors? Because if it had four doors it would be a chicken sedan.
+## I really want to buy one of those supermarket checkout dividers, but the cashier keeps putting it back.
