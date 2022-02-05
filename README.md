@@ -1,3 +1,1 @@
-## What was the pumpkin’s favorite sport?
-## 
-## Squash.
+## I used to think I was indecisive, but now I'm not sure.
