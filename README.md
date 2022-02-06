@@ -1,1 +1,2 @@
-## I dreamed about drowning in an ocean made out of orange soda last night. It took me a while to work out it was just a Fanta sea.
+## Some people say that I never got over my obsession with Phil Collins.
+## But take a look at me now.
