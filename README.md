@@ -1,1 +1,1 @@
-## The best time on a clock is 6:30--hands down.
+## I made a playlist for hiking. It has music from Peanuts, The Cranberries, and Eminem. I call it my Trail Mix.
