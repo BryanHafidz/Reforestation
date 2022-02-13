@@ -1,2 +1,1 @@
-## Where do cats write notes?
-## Scratch Paper!
+## Why do bears have hairy coats? Fur protection.
