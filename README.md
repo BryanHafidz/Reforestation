@@ -1,2 +1,1 @@
-## What is the best way to carve?
-## Whittle by whittle.
+## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
