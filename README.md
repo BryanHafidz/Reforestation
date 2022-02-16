@@ -1,1 +1,1 @@
-## What do you do when your bunny gets wet? You get your hare dryer.
+## Why is no one friends with Dracula? Because he's a pain in the neck.
