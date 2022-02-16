@@ -1,1 +1,1 @@
-## What are the strongest days of the week? Saturday and Sunday...the rest are weekdays.
+## If a child refuses to sleep during nap time, are they guilty of resisting a rest?
