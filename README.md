@@ -1,1 +1,1 @@
-## What do you call an eagle who can play the piano? Talonted!
+## What do you do when your bunny gets wet? You get your hare dryer.
