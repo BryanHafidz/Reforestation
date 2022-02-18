@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Want to hear a chimney joke? Got stacks of em! First one's on the house
