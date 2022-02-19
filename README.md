@@ -1,1 +1,1 @@
-## How do you get two whales in a car? Start in England and drive West.
+## I tried taking some high resolution photos of local farmland, but they all turned out a bit grainy.
