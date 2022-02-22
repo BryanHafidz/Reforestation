@@ -1,1 +1,1 @@
-## The first time I got a universal remote control I thought to myself, "This changes everything"
+## Did you hear the news? FedEx and UPS are merging. They’re going to go by the name Fed-Up from now on.
