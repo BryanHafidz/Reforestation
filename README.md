@@ -1,1 +1,1 @@
-## I went to the store to pick up eight cans of sprite... when I got home I realized I'd only picked seven up
+## My wife is on a tropical fruit diet, the house is full of stuff. It is enough to make a mango crazy.
