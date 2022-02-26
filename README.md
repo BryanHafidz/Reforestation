@@ -1,1 +1,1 @@
-## If you’re struggling to think of what to get someone for Christmas. Get them a fridge and watch their face light up when they open it.
+## A beekeeper was indicted after he confessed to years of stealing at work. They charged him with emBEEzlement
