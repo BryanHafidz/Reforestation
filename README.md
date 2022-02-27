@@ -1,1 +1,1 @@
-## Why are basketball players messy eaters? Because they are always dribbling.
+## There's not really any training for garbagemen. They just pick things up as they go.
