@@ -1,1 +1,1 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## I had a dream that I was a muffler last night. I woke up exhausted!
