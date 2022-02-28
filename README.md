@@ -1,1 +1,1 @@
-## What is the leading cause of dry skin? Towels
+## Is the pool safe for diving? It deep ends.
