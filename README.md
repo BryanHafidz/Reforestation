@@ -1,1 +1,1 @@
-## What musical instrument is found in the bathroom? A tuba toothpaste.
+## I just got fired from a florist, apparently I took too many leaves.
