@@ -1,1 +1,1 @@
-## Why did the kid cross the playground? To get to the other slide.
+## Did you hear about the kidnapping at school? It's ok, he woke up.
