@@ -1,1 +1,1 @@
-## Did you hear about the kidnapping at school? It's ok, he woke up.
+## I knew a guy who collected candy canes, they were all in mint condition
