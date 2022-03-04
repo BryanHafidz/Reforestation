@@ -1,1 +1,1 @@
-## Two silk worms had a race. They ended up in a tie.
+## What do you call someone with no nose? Nobody knows.
