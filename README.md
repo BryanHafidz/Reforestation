@@ -1,1 +1,1 @@
-## Mountains aren't just funny, they are hill areas
+## Two silk worms had a race. They ended up in a tie.
