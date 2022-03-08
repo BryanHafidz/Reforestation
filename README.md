@@ -1,1 +1,1 @@
-## Ever wondered why bees hum? It's because they don't know the words.
+## Why didn’t the skeleton cross the road? Because he had no guts.
