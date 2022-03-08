@@ -1,1 +1,1 @@
-## Slept like a log last night … woke up in the fireplace.
+## Where do rabbits go after they get married? On a bunny-moon.
