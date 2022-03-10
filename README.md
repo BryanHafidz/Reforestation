@@ -1,1 +1,1 @@
-## Whoever invented the knock-knock joke should get a no bell prize.
+## I used to be addicted to soap, but I'm clean now.
