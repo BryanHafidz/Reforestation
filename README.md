@@ -1,1 +1,1 @@
-## I ate a clock yesterday. It was so time consuming.
+## Whoever invented the knock-knock joke should get a no bell prize.
