@@ -1,1 +1,1 @@
-## I used to be addicted to soap, but I'm clean now.
+## I was fired from the keyboard factory yesterday.  I wasn't putting in enough shifts.
