@@ -1,1 +1,2 @@
-## What is a centipedes's favorite Beatle song?  I want to hold your hand, hand, hand, hand...
+## A weasel walks into a bar. The bartender says, "Wow, I've never served a weasel before. What can I get for you?"
+## "Pop," goes the weasel.
