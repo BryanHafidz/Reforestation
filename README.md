@@ -1,1 +1,2 @@
-## What do you call a bee that lives in America? A USB.
+## Why don't you find hippopotamuses hiding in trees?
+## They're really good at it.
