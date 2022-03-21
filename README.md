@@ -1,2 +1,1 @@
-## What's large, grey, and doesn't matter?
-## An irrelephant.
+## Why did the half blind man fall in the well? Because he couldn't see that well!
