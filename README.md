@@ -1,1 +1,1 @@
-## What happens when you anger a brain surgeon? They will give you a piece of your mind.
+## Why don’t seagulls fly over the bay? Because then they’d be bay-gulls!
