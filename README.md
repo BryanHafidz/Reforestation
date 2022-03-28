@@ -1,1 +1,1 @@
-## Today a girl said she recognized me from vegetarian club, but I’m sure I’ve never met herbivore.
+## Have you heard the rumor going around about butter? Never mind, I shouldn't spread it.
