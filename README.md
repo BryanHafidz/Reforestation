@@ -1,1 +1,1 @@
-## What's red and bad for your teeth? A Brick.
+## What has ears but cannot hear? A field of corn.
