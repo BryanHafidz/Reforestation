@@ -1,1 +1,1 @@
-## I'd like to start a diet, but I've got too much on my plate right now.
+## I went to the doctor today and he told me I had type A blood but it was a type O.
