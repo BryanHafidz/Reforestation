@@ -1,1 +1,3 @@
-## My cat was just sick on the carpet, I don’t think it’s feline well.
+## Why do pumpkins sit on people’s porches?
+## 
+## They have no hands to knock on the door.
