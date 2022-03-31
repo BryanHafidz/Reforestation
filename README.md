@@ -1,3 +1,1 @@
-## Why do pumpkins sit on people’s porches?
-## 
-## They have no hands to knock on the door.
+## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
