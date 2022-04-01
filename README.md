@@ -1,1 +1,1 @@
-## What’s the difference between an African elephant and an Indian elephant? About 5000 miles.
+## How do you find Will Smith in the snow?  Look for fresh prints.
