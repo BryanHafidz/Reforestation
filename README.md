@@ -1,1 +1,1 @@
-## Can a kangaroo jump higher than the Empire State Building? Of course. The Empire State Building can't jump.
+## What did celery say when he broke up with his girlfriend? She wasn't right for me, so I really don't carrot all.
