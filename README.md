@@ -1,1 +1,1 @@
-## What does a pirate pay for his corn? A buccaneer!
+## Why did the A go to the bathroom and come out as an E? Because he had a vowel movement.
