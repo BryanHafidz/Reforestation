@@ -1,1 +1,1 @@
-## What did the fish say when it swam into a wall? Damn!
+## Why do valley girls hang out in odd numbered groups? Because they can't even.
