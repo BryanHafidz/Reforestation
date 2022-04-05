@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why are fish so smart? Because they live in schools!
