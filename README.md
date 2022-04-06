@@ -1,1 +1,1 @@
-## Coffee has a tough time at my house, every morning it gets mugged.
+## Why did the Clydesdale give the pony a glass of water?  Because he was a little horse!
