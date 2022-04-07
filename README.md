@@ -1,1 +1,1 @@
-## What did the piece of bread say to the knife? Butter me up.
+## I’m on a whiskey diet. I’ve lost three days already.
