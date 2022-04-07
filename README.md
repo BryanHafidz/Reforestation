@@ -1,1 +1,1 @@
-## I’m on a whiskey diet. I’ve lost three days already.
+## They tried to make a diamond shaped like a duck. It quacked under the pressure.
