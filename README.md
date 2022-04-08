@@ -1,1 +1,1 @@
-## They tried to make a diamond shaped like a duck. It quacked under the pressure.
+## Ever wondered why bees hum? It's because they don't know the words.
