@@ -1,1 +1,1 @@
-## Why was the picture sent to prison? It was framed.
+## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
