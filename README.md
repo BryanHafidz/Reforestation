@@ -1,1 +1,1 @@
-## Why can’t you hear a pterodactyl go to the bathroom? The p is silent.
+## Why do trees seem suspicious on sunny days? Dunno, they're just a bit shady.
