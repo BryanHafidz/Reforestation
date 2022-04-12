@@ -1,1 +1,3 @@
-## How many South Americans does it take to change a lightbulb? A Brazilian
+## What is the difference between ignorance and apathy?
+## 
+## I don't know and I don't care.
