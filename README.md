@@ -1,1 +1,1 @@
-## What do you call a gorilla wearing headphones? Anything you'd like, it can't hear you.
+## How many South Americans does it take to change a lightbulb? A Brazilian
